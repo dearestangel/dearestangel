@@ -5,7 +5,7 @@
 
 - cedar or ves
 - unlabeled / all or no prns
-- c+h always allowed, cudcomf
+- c+h always allowed, even with a dni in name
 - iwec always but pls int!! I love interaction ♥
 <img width="99" height="56" alt="tumblr_96e69a036b4c2e84a464fe9ad41ae495_bf657d30_100" src="https://github.com/user-attachments/assets/2fe68d2a-18aa-42bf-badb-a7afc3835a6f" />
 <img width="99" height="56" alt="tumblr_aeac0594baa2949d24f6dba2a9931ef9_648713b4_100" src="https://github.com/user-attachments/assets/980e33e1-64c5-491a-932c-d3a025aadb7b" />

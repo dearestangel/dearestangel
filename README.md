@@ -5,6 +5,7 @@
 
 - cedar or ves
 - unlabeled / all or no prns
+- any terms, fem pref
 - c+h always allowed, even with a dni in name
 - iwec always but pls int!! I love interaction ♥
 - i am usually offtab and doing stuff, especially at night. if im not obviously active and moving around, pls w2i to grab my attention! I may reply late.

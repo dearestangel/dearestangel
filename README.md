@@ -1,4 +1,4 @@
-<img width="659" height="465" alt="tumblr_4390318c14f327e227bf63a824b64410_d4927410_1280" src="https://github.com/user-attachments/assets/7575b81d-0167-4ab3-90c4-85a73d24d3d7" />
+<img width="164" height="116" alt="tumblr_4390318c14f327e227bf63a824b64410_d4927410_1280" src="https://github.com/user-attachments/assets/7575b81d-0167-4ab3-90c4-85a73d24d3d7" />
 
 - cedar or ves
 - unlabeled / all or no prns

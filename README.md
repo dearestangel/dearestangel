@@ -1,9 +1,9 @@
 <img width="659" height="465" alt="tumblr_4390318c14f327e227bf63a824b64410_d4927410_1280" src="https://github.com/user-attachments/assets/7575b81d-0167-4ab3-90c4-85a73d24d3d7" />
 
-cedar or ves
-unlabeled / all or no prns
-c+h always allowed, cudcomf
-iwec always but pls int!! I love interaction ♥
+- cedar or ves
+- unlabeled / all or no prns
+- c+h always allowed, cudcomf
+- iwec always but pls int!! I love interaction ♥
 <img width="99" height="56" alt="tumblr_96e69a036b4c2e84a464fe9ad41ae495_bf657d30_100" src="https://github.com/user-attachments/assets/2fe68d2a-18aa-42bf-badb-a7afc3835a6f" />
 <img width="99" height="56" alt="tumblr_aeac0594baa2949d24f6dba2a9931ef9_648713b4_100" src="https://github.com/user-attachments/assets/980e33e1-64c5-491a-932c-d3a025aadb7b" />
 <img width="105" height="58" alt="tumblr_55aae1ccc3957d5fb4f81a79d4b5e318_97b4e51d_250" src="https://github.com/user-attachments/assets/2a0dc26f-5df5-4533-8048-8a1163acbf4a" />

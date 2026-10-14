@@ -7,6 +7,7 @@
 - unlabeled / all or no prns
 - c+h always allowed, even with a dni in name
 - iwec always but pls int!! I love interaction ♥
+- i am usually offtab and doing stuff, especially at night. if im not obviously active and moving around, pls w2i to grab my attention! I may reply late.
 <img width="99" height="56" alt="tumblr_96e69a036b4c2e84a464fe9ad41ae495_bf657d30_100" src="https://github.com/user-attachments/assets/2fe68d2a-18aa-42bf-badb-a7afc3835a6f" />
 <img width="99" height="56" alt="tumblr_aeac0594baa2949d24f6dba2a9931ef9_648713b4_100" src="https://github.com/user-attachments/assets/980e33e1-64c5-491a-932c-d3a025aadb7b" />
 <img width="105" height="58" alt="tumblr_55aae1ccc3957d5fb4f81a79d4b5e318_97b4e51d_250" src="https://github.com/user-attachments/assets/2a0dc26f-5df5-4533-8048-8a1163acbf4a" />

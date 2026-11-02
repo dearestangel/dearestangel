@@ -3,7 +3,7 @@
 
 
 
-- cedar or ves
+- cedar or will
 - unlabeled / all or no prns
 - any terms, fem pref
 - c+h always allowed, even with a dni in name

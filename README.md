@@ -5,7 +5,7 @@
 
 - cedar or will
 - unlabeled / all or no prns
-- any terms, fem pref
+- any terms
 - c+h always allowed, even with a dni in name
 - iwec always but pls int!! I love interaction♥
 - i am usually offtab and doing stuff, whisper to grab my attention! I don't bite 🍀

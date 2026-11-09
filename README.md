@@ -6,7 +6,7 @@
 - cedar or will
 - unlabeled / all or no prns
 - any terms
-- c+h always allowed, even with a dni in name
+- c+h always allowed, even with a dni in name, UNLESS I am with hannibal. 
 - iwec always but pls int!! I love interaction♥
 - i am usually offtab and doing stuff, whisper to grab my attention! I don't bite 💉
 <img width="99" height="56" alt="tumblr_96e69a036b4c2e84a464fe9ad41ae495_bf657d30_100" src="https://github.com/user-attachments/assets/2fe68d2a-18aa-42bf-badb-a7afc3835a6f" />

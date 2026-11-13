@@ -4,8 +4,8 @@
 
 
 - cedar or will
-- unlabeled / all or no prns
-- any terms
+- gender non-conforming & sapphic 
+- bug canine person thing
 - c+h always allowed, even with a dni in name, UNLESS I am with hannibal. 
 - iwec always but pls int!! I love interaction♥
 - i am usually offtab and doing stuff, whisper to grab my attention! I don't bite 💉
